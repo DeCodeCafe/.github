@@ -6,7 +6,10 @@ DeCodeCafe is a student community of like-minded people who believe in Kaizen (C
 We are currently a Rising Community and engaging students with our Workshops, Webinar, Learning Resources, and Opportunities in Tech.
 
 
+
 ![Corporate LinkedIn Banner](https://user-images.githubusercontent.com/71710042/169354258-fb8bba8e-0007-4be2-a44e-698ee53a251f.png)
+
+
 
 
 ### Our Platforms:
