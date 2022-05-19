@@ -1,5 +1,5 @@
 # DeCodeCafe Community
-Encouraging Learning in Public.
+Encouraging Learning in Public.             
 
 
 DeCodeCafe is a student community of like-minded people who believe in Kaizen (Continuous Improvement). We are here to encourage learning in public culture and help the student community with their life in/after college. 
