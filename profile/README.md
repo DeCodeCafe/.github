@@ -19,4 +19,4 @@ We are currently a Rising Community and engaging students with our Workshops, We
 #### Discord:  https://discord.gg/ptY9Qs6m
 
 
-#### Contact us for queries: decodecafe.community@gmail.com
+#### Contact us for queries: decodecafe.community@gmail.com 
