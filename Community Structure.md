@@ -19,3 +19,6 @@
 -
 -
 -
+
+### Founder
+- Rahul Khinchi
