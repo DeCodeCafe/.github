@@ -15,10 +15,10 @@ We are currently a Rising Community and engaging students with our Workshops, We
 
 
 ### Our Platforms:
-#### [Linkedin] (https://www.linkedin.com/company/80260383/admin/)
-#### [Twitter] (https://twitter.com/decodecafe)
-#### [Discord]  (https://discord.gg/ptY9Qs6m)
-#### [Youtube] (https://www.youtube.com/@decodecafecommunity6317)
+#### [Linkedin](https://www.linkedin.com/company/80260383/admin/)
+#### [Twitter](https://twitter.com/decodecafe)
+#### [Discord](https://discord.gg/ptY9Qs6m)
+#### [Youtube](https://www.youtube.com/@decodecafecommunity6317)
 
 
 #### Contact us for queries: decodecafe.community@gmail.com 
