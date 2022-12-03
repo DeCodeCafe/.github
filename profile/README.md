@@ -9,14 +9,16 @@ We are currently a Rising Community and engaging students with our Workshops, We
 
 ![Corporate LinkedIn Banner](https://user-images.githubusercontent.com/71710042/169354258-fb8bba8e-0007-4be2-a44e-698ee53a251f.png)
 
+[Know more!](https://docs.google.com/document/d/1QHdBXN-FSmUqr3T4oihPj4cTkndICRJJPbrcblNDwiU/edit?usp=sharing)
+
 
 
 
 ### Our Platforms:
 #### Linkedin: https://www.linkedin.com/company/80260383/admin/
 #### Twitter https://twitter.com/decodecafe
-#### Telegram (For Learning Resources): https://t.me/+a2s2S4AgluUzZmFl
 #### Discord:  https://discord.gg/ptY9Qs6m
+#### Youtube: https://www.youtube.com/@decodecafecommunity6317
 
 
 #### Contact us for queries: decodecafe.community@gmail.com 
